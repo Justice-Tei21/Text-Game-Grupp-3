@@ -47,4 +47,4 @@ testade bara ut några saker här
 
 
 
-definitivt inte här för att jag behöver ett skyddsnät... för att.
+det var inget
