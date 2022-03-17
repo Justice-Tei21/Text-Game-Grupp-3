@@ -1,6 +1,50 @@
 # Text-Game-Grupp-3
-Justice, Sako, Daniel, Filip, Lukas
+
+
+Välkommen till dig som hittade hit.
+
+
+testade bara ut några saker här
 
 
 
-Det här är dokumentet
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+definitivt inte här för att jag behöver ett skyddsnät... för att.
